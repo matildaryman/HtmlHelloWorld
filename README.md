@@ -1,0 +1,1 @@
+En webbplats om min favorit plats, min erfarenhet inom programmering samt 5 av mina hobbyer.
